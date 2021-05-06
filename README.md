@@ -1,7 +1,7 @@
 ### Hi! I'm Bruno
 
 📖 [Udemy Instructor](https://www.udemy.com/user/bruno-benicio-do-nascimento/) <br>
-🚀 [Software Engineer]<br>
+🚀 Software Engineer<br>
 📝 [Medium Writter](https://medium.com/@brunobnasciment) <br>
 
 
